@@ -1,0 +1,1 @@
+# lafriedel.github.io
